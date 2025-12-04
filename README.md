@@ -1,0 +1,1 @@
+# FairPolicyBySupercell_UkrainianTranslate
